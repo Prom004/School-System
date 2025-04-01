@@ -13,7 +13,7 @@ Edu Software has all in one place. You’ll find everything what you are looking
 We care! User will never bothered in our real eye catchy user friendly UI & UX Interface design. 
 
 ## Proper Documentation
-You know! Smart Idea always comes to well planners. And Our INFIX is Smart for its Well Documentation. 
+You know! Smart Idea always comes to well planners. And Our Edu Software is Smart for its Well Documentation. 
 
 
 ## Powerful Support
